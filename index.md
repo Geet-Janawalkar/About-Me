@@ -1,4 +1,4 @@
-# Geet Janawalkar
+## Geet Janawalkar
 
 ## CAREER OBJECTIVES
 Motivated individual looking for a challenging role in a reputed company to utilize my engineering skills that can contribute to the company’s growth as well as enhance my knowledge by exploring new things.
